@@ -4,5 +4,4 @@ Walton Laptop Presents MindSparks 22: An Inter-University and College Tech/Biz C
 #university #project #tech
 #Octane_RoboVac(Andriod Controlled)
 #MindSparks_22
-#AUSTIDC 🔥
-Activate to view larger image,
+#AUSTIDC 
